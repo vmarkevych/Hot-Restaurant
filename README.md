@@ -1,2 +1,2 @@
 # Hot-Restaurant
-Very hot 
+Piping/Sizzling H-O-T
